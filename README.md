@@ -1,0 +1,1 @@
+# Device-Compatible-Game-Class-20
